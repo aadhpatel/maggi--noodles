@@ -1,0 +1,1 @@
+Maggi is a 2 minute noodle recipe made by Nestle, it is a delicious noodle recipe which includes a little maggi soup to make your experience much more better. If you haven't tasted it yet this is your chance to taste something new and exciting, yay!
